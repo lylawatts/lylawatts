@@ -1,4 +1,3 @@
-
 ## Salutations! Je suis Lyla Watts ❤️
 J'adore utiliser les réseaux sociaux pour renforcer ma confiance car je suis un peu timide dans la vraie vie.
 Je suis actuellement célibataire et je suis au lycée (11e année).
@@ -7,7 +6,7 @@ Je suis actuellement célibataire et je suis au lycée (11e année).
 ![Utilisateur Discord](https://img.shields.io/badge/Discord-Lyla%230749-ff69b4)
 ![Mon Twitter](https://img.shields.io/twitter/follow/lylawatts_ofc?style=social)
 
-## Frequently Asked Questions ❓
+## Questions fréquemment posées ❓
 
 #### Quel âge as-tu?
 - J'ai actuellement 16 ans.
