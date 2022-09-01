@@ -4,7 +4,7 @@ Je suis actuellement célibataire et je suis au lycée (11e année).
 
 ## Des médias sociaux ✨
 ![Utilisateur Discord](https://img.shields.io/badge/Discord-Lyla%230749-ff69b4)
-![Mon Twitter](https://img.shields.io/twitter/follow/lylawatts_ofc?style=social)
+![Mon Twitter](https://img.shields.io/twitter/follow/lightysaw?style=social)
 
 ## Questions fréquemment posées ❓
 
